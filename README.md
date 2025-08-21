@@ -1,4 +1,4 @@
-### Hola 👋, soy Otoniel
+### Hola 👋 soy Otoniel
 #### Técnico en Informática | Estudiante de Ingeniería en Sistemas | Desarrollador en formación
 ![Técnico en Informática | Estudiante de Ingeniería en Sistemas | Desarrollador en formación](https://www.shutterstock.com/image-photo/hands-typing-on-laptop-programming-600nw-2480023489.jpg)
 
